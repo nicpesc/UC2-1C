@@ -12,4 +12,8 @@
 # Nicole Pessoa
 
 Atividade : Trello
--[Grupo](link)
+-[Grupo: Guilherme, Paulo Ferreira, Nicole Pessoa, Alisson calasans](https://trello.com/invite/b/8zA4Q3nY/ATTI9affd8df9d49dc14dd3f664f92476a22431BA08B/swot-empresa-de-tecnologia-meta)
+
+-[individual](https://trello.com/invite/b/7QZaasth/ATTI77a450229fc6ec075aff9da570807a01CB66595D/nicole-🎀)
+
+
