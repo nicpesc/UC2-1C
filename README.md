@@ -17,3 +17,4 @@ Atividade : Trello
 -[individual](https://trello.com/invite/b/7QZaasth/ATTI77a450229fc6ec075aff9da570807a01CB66595D/nicole-🎀)
 
 
+-[Grupo:Hadassa, Nicole, Luana Queiroz, Erick, Arthur Angelo](
