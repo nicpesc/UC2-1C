@@ -22,3 +22,6 @@
 **Atividade : CANVA**
 - JAVASCRIPT [Grupo:Hadassa, Nicole, Luana Queiroz, Erick, Arthur Angelo](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit)
 - AQUECIMENTO GLOBAL [Grupo:Hadassa, Nicole, Luana Queiroz, Breno](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+**Atividade : MIRO**
+- [individual](https://miro.com/welcomeonboard/UVB5UW10b0JqSHFYVlFac1JzS0x1bkdMd3VncG5DZFVncTZoRmVWczhyaTcwa1k5bVNmN3JrdzV6bTdETFhDZXwzNDU4NzY0NTg4OTkzMzA1NDkwfDI=?share_link_id=162664890691)
