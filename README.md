@@ -16,12 +16,15 @@
 
 - [individual](https://trello.com/invite/b/7QZaasth/ATTI77a450229fc6ec075aff9da570807a01CB66595D/nicole-🎀)
 
-- [Grupo:Nicole, Erick, Hadassa, Luana, Marvyn](https://trello.com/invite/b/FNEcOPRI/ATTId88f3cc42c21ed2651c3ea19a3983c828E15E5B6/trabalho-em-grupo)
+- [Grupo:Nicole,Erick,Hadassa,Luana,Marvyn](https://trello.com/invite/b/FNEcOPRI/ATTId88f3cc42c21ed2651c3ea19a3983c828E15E5B6/trabalho-em-grupo)
 
   
 **Atividade : CANVA**
-- JAVASCRIPT [Grupo:Hadassa, Nicole, Luana Queiroz, Erick, Arthur Angelo](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit)
-- AQUECIMENTO GLOBAL [Grupo:Hadassa, Nicole, Luana Queiroz, Breno](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- [JAVASCRIPTGrupo:Hadassa, Nicole, Luana Queiroz, Erick, Arthur Angelo](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit)
+- [AQUECIMENTO GLOBALGrupo:Hadassa, Nicole, Luana Queiroz, Breno](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 **Atividade : MIRO**
 - [individual](https://miro.com/welcomeonboard/UVB5UW10b0JqSHFYVlFac1JzS0x1bkdMd3VncG5DZFVncTZoRmVWczhyaTcwa1k5bVNmN3JrdzV6bTdETFhDZXwzNDU4NzY0NTg4OTkzMzA1NDkwfDI=?share_link_id=162664890691)
+
+**Atividade : DOCS**
+  - [individual](https://docs.google.com/document/d/17n63_jjEnDU__7Gaqs0Ma8de32vjT0iiIXD_ZvwbrzY/edit)
