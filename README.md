@@ -28,5 +28,7 @@
 
 **Atividade : DOCS**
   - [individual](https://docs.google.com/document/d/17n63_jjEnDU__7Gaqs0Ma8de32vjT0iiIXD_ZvwbrzY/edit)
+
+
 **Atividade :  PLANILHA**
  - [GRUPO](https://docs.google.com/spreadsheets/d/1G1VWxcM7JbDCOmMCh7DgREZ6N2opwprjehFwmUOPJ5o/edit?usp=sharing)
